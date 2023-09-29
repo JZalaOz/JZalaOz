@@ -1,4 +1,4 @@
-### Hello 👋 :)
+### Hello 👋
 
 - 📫 How to reach me:
     Discord: JZalaOz
