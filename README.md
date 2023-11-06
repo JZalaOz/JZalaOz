@@ -3,7 +3,7 @@
 **📫 Contact me:**
 
 * Discord: JZalaOz
-* Email: jzalaz0000@gmail.com
+* Email: jzalaoz0000@gmail.com
 
 **😄 Pronouns:** he/him
 
